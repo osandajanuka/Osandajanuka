@@ -3,6 +3,7 @@
 
 
 - 🌱 I’m currently learning space technology,and photography
+
 -I'm intrested in 
   ### Photography
   ### Video Editing
